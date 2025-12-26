@@ -1,1 +1,1 @@
-# NDX-BALL-NEO
+# DX-BALL-NEO
